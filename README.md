@@ -1,6 +1,6 @@
 Họ và Tên : Kiều Thu Trang    
 
-MÃ SV : 17it116
+MÃ SV : 17it108
 
 Mã đề 13 :
 
